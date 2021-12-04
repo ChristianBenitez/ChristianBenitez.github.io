@@ -1,1 +1,0 @@
-Personal Website to host projects and resume
